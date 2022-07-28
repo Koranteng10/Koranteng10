@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Koranteng10
+- 👀 I love listening to music
+- 🌱 I’m currently a Data Analyst Trainee at 131 Sunflower Hub
+- 📫 I can be reached on priscillakincoom@gmail.com
